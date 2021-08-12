@@ -5,5 +5,5 @@
 If you wanna contact me here is a list
 Instagram ID:  falconrude
 Discord ID:    --FALCON--#9457
-Kakaotal Name: --FALCON--
+Kakaotalk Name: --FALCON--
 gmail :        falcondde@gmail.com
